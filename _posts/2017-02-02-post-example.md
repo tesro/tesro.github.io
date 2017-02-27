@@ -2,6 +2,7 @@
 title: Disregard Females, Acquire Currency
 featured: /assets/images/pic03.jpg
 layout: post
+comments: true
 ---
 
 # Disregard Females, Get currency
