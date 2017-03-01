@@ -30,6 +30,6 @@ you just dont want to leave any single chance to make an impression on them.</p>
 
 <center><img src="/assets/images/pic-crush-end.jpg" alt="After all this time,it's still you!" height="200" width="500"/></center>
 <p></p>
-<p>So to all those guys who had someone, who had a story, I dedicate this nice song</p>
+<p>So to all those guys and girls who had someone, who had a story, I dedicate this nice song</p>
 <p></p>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/MzCLLHscMOw" frameborder="0" allowfullscreen></iframe>
