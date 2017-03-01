@@ -18,7 +18,7 @@ you just dont want to leave any single chance to make an impression on them.</p>
 <p>You try to have fun with them each and every moment you get with them, you love it if you catch them staring at you!, but this could end in up two ways, either you get them or you try to get over them. Ofcourse if I knew how you feel if you are able to get them, I wouldn't be writing this story over here!</p>
 
 <div>
-<center><img src="/assets/images/pic-crush_bet.jpg" alt="Tunnel of love!" width="500" /></center>
+<center><img src="/assets/images/pic-crush_bet.jpg" alt="Tunnel of love!" width="100%" /></center>
 </div>
 <p></p>
 <p>So getting over with them, you my friend, you are just giving yourself false hopes, no matter if you moved on, there is always a part of you that still loves them</p>
@@ -28,7 +28,7 @@ you just dont want to leave any single chance to make an impression on them.</p>
 
 
 
-<center><img src="/assets/images/pic-crush-end.jpg" alt="After all this time,it's still you!" height="200" width="500"/></center>
+<center><img src="/assets/images/pic-crush-end.jpg" alt="After all this time,it's still you!" width="100%"/></center>
 <p></p>
 <p>So to all those guys and girls who had someone, who had a story, I dedicate this nice song</p>
 <p></p>
