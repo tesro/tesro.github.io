@@ -21,9 +21,9 @@ you just dont want to leave any single chance to make an impression on them.</p>
 <center><img src="/assets/images/pic-crush_bet.jpg" alt="Tunnel of love!" width="500" /></center>
 </div>
 <p></p>
-<p>So getting over with them, you my friend, you are just giving yourself false hopes, no matter if moved on, there is always a part of you that still loves them</p>
+<p>So getting over with them, you my friend, you are just giving yourself false hopes, no matter if you moved on, there is always a part of you that still loves them</p>
 <p>So if you guys have seen "How I Met Your Mother", you would have seen the episode where Ted says to Robin that he has turned his feelings off and then he kisses her only to realise that there is no switch to turn off</p>
-<p>So all you guys if you are with your crushes living a happy life you are very lucky, and those who are unable to do so, you will find someone better I would say.</p>
+<p>So all you guys if you are with your crushes living a happy life you are very lucky, and those who are unable to do so, you will find someone better I would say, I know that hurts but thats only thing ya can do, you just cant force someone to fall for you!.</p>
 
 
 
