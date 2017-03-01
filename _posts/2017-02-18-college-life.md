@@ -15,4 +15,4 @@ College Life boasts to have one of the most sweet and cherishable memories of a 
 
 <p>You wonder what is life like on the other side (after college), whether it is fun and happening or is it the some monotonous work and no fun at all, I wont say about it right now, because it is too bad to make assumptions about future, but one thing I know for sure that is life wont be like this anymore and I am going to miss it.</p>
 
-<center><img src="/assets/images/pic-col-end.jpg"/><center>
+<center><img src="/assets/images/pic-col-end.jpg" width="100%" /><center>
