@@ -7,8 +7,6 @@ comments: true
 
 College Life boasts to have one of the most sweet and cherishable memories of a persons lifetime
 
-# College Life About To End :(
-
 -----------------------------------------
 
 <p>So yeah, one remembers the college life for like forever. We like to hold on to those lovely memories to the last breath. When all of us were heartbroken by the fact that we are done with school and we have left those beautiful days behind us, The College helped us to bear the grief but now when the college is nearly done, my heart trembles with fear because I see no one on the other side to help me cope up with this loss.</p>
