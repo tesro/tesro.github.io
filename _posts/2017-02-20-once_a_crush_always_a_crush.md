@@ -32,4 +32,4 @@ you just dont want to leave any single chance to make an impression on them.</p>
 <p></p>
 <p>So to all those guys and girls who had someone, who had a story, I dedicate this nice song</p>
 <p></p>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MzCLLHscMOw" frameborder="0" allowfullscreen></iframe>
+<iframe width="100%"  src="https://www.youtube.com/embed/MzCLLHscMOw" frameborder="0" allowfullscreen></iframe>
