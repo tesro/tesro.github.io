@@ -6,17 +6,16 @@ comments: true
 ---
 
 Books are the best friends a person can have!
-<strong>
-> > # You know you’ve read a good book when you turn the last page and feel a little as if you have lost a friend.
 
-</strong>
+> > You know you’ve read a good book when you turn the last page and feel a little as if you have lost a friend.
+
+
 
 <p></p>
-<strong>
 
-> > # If we encounter a man of rare intellect, we should ask him what books he reads.
 
-</strong>
+> >  If we encounter a man of rare intellect, we should ask him what books he reads.
+
 
 -------------------------------------------------------------------------
 
