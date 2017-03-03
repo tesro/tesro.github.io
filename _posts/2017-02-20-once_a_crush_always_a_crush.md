@@ -12,8 +12,9 @@ and all I can say is dude I coudn't agree with you more.
 
 >> I too had someone 
 
-</strong>
+
 <p></p>
+</strong>
 
 ---------------------------------------------
 
