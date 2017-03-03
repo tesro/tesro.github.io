@@ -5,25 +5,34 @@ layout: post
 comments: true
 ---
 
-Yesterday I read somewhere, "Crushes are the one reason, Why being single not so boring!"
+Yesterday I read somewhere, "Crushes are the one reason, Why being single is not so boring!"
 and all I can say is dude I coudn't agree with you more.
+<p></p>
 
 >> I too had someone
+
+<p></p>
+
 ---------------------------------------------
 
 <p>So yes crushes are actually the reason which makes all this so much exciting and thrilling
 you just do everything, or I should say you in-depth plan everything so perfectly in order to impress them,
 you just dont want to leave any single chance to make an impression on them.</p>
 
-<p>You try to have fun with them each and every moment you get with them, you love it if you catch them staring at you!, but this could end in up two ways, either you get them or you try to get over them. Ofcourse if I knew how you feel if you are able to get them, I wouldn't be writing this story over here!</p>
+<p>You try to enjoy each and every sweet moment you have together, you love it if you catch them staring at you.
+Ohh I can't express that feeling in mere words.All these stories with crushes usually end up in two ways, either you get them or you try to get over them. Ofcourse if I knew how one feels if you are able to get them, I wouldn't be writing this story over here!</p>
 
 <div>
 <center><img src="/assets/images/pic-crush_bet.jpg" alt="Tunnel of love!" width="100%" /></center>
 </div>
+
 <p></p>
-<p>So getting over with them, you my friend, you are just giving yourself false hopes, no matter if you moved on, there is always a part of you that still loves them</p>
+
+<p>So getting over with them, you my friend, you are just giving yourself false hopes, no matter if you moved on or not, there would be a part of you that still loves them</p>
+
 <p>So if you guys have seen "How I Met Your Mother", you would have seen the episode where Ted says to Robin that he has turned his feelings off and then he kisses her only to realise that there is no switch to turn off</p>
-<p>So all you guys if you are with your crushes living a happy life you are very lucky, and those who are unable to do so, you will find someone better I would say, I know that hurts but thats only thing ya can do, you just cant force someone to fall for you!.</p>
+
+<p>So all you guys if you are with your crushes living a happy life you are very lucky, and those who are unable to do so, all I can say is you will find someone better, I know that hurts but thats only thing ya can do, you just cant force someone to fall for you!.</p>
 
 
 
