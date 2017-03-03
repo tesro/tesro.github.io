@@ -8,13 +8,12 @@ comments: true
 Yesterday I read somewhere, "Crushes are the one reason, Why being single is not so boring!"
 and all I can say is dude I coudn't agree with you more.
 <p></p>
-<strong>
+
 
 >> I too had someone 
 
 
 <p></p>
-</strong>
 
 ---------------------------------------------
 
