@@ -39,8 +39,12 @@ Ohh I can't express that feeling in mere words. All these stories with crushes u
 
 
 
+
 <center><img src="/assets/images/pic-crush-end.jpg" alt="After all this time, it's still you!" width="100%"/></center>
 <p></p>
 <p>So to all those guys and girls who had someone, who had a story, I dedicate this nice song</p>
 <p></p>
 <iframe width="100%"  height="315" src="https://www.youtube.com/embed/MzCLLHscMOw" frameborder="0" allowfullscreen ></iframe>
+
+
+<p>Beleieve me mates there is someone else better than them, with whom you would be able to connect better, you just need to pray and keep your eyes open, cause guess what you don't wanna miss out on the perfect one in any case.</p>
